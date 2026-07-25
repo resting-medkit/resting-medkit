@@ -8,4 +8,4 @@ no longer updating this.
   
 </details>
 
-If you're planning on putting this into situation doc, please blur out my current username(NOT meddycarrot that's expection/.) and my oomfs' names(and github included. I do not want them getting doxxed cuz of me/srs)
+If you're planning on putting this into situation doc, please blur out my current username(NOT meddycarrot that's expection/.) and my oomfs' names(and github included. I do not want them getting doxxed cuz of me/srs). I kindly request this.
