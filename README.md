@@ -8,4 +8,4 @@ no longer updating this.
   
 </details>
 
-
+If you're planning on putting this into situation doc, please blur out my current username(NOT meddycarrot that's expection/.) and my oomfs' names.
