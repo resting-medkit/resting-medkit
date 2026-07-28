@@ -8,5 +8,7 @@ no longer updating this.
   
 </details>
 
-I'm gonna draw mpreg zuka guys...orr i'll just draw the pradoy of the song cover called "The Baby is you" aka PHIGHTING VERISON of the cover(mpreg wins)
-" you can be plural without being a system" i'm headcanoning posion as willogenic trust me gamers
+here's my OOMF's reponse, now i want to END this here, you either accept our fate and DROP the misinfo of WsW based on "pysche ward". Because you and your LITTLE puppet friends LOVES spreading misinfo, you either follow those words above me OR i'm drawing you as WHIMSICAL WARD character BASED on you and your friends, also your partner. choose. Drop the misinfo of whimsical Ward and leave me be to support MY oomf. OR this. pick buddy.
+
+https://docs.google.com/document/d/12l7zF2vqK-dOTAbIh6dO32ma10FDaCxGmO5B4qsyARY/edit?tab=t.0
+(i linked this with her premission btw, be respectful or i'll do smth worst.)
