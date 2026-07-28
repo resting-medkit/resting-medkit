@@ -8,4 +8,4 @@ no longer updating this.
   
 </details>
 
-I'm gonna draw mpreg zuka guys...orr i'll just make pradoy of the song called "The Baby is you" aka PHIGHTING VERISON of the cover(mpreg wins)
+I'm gonna draw mpreg zuka guys...orr i'll just draw the pradoy of the song cover called "The Baby is you" aka PHIGHTING VERISON of the cover(mpreg wins)
