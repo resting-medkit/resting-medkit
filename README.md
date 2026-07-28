@@ -12,3 +12,4 @@ here's my OOMF's reponse, now i want to END this here, you either accept our fat
 
 https://docs.google.com/document/d/12l7zF2vqK-dOTAbIh6dO32ma10FDaCxGmO5B4qsyARY/edit?tab=t.0
 (i linked this with her premission btw, be respectful or i'll do smth worst. We are turning this situation as fnaf lore lol)
+ **final warning, i'm not sugarcoating like a said from beginning**
