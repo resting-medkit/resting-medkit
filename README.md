@@ -8,7 +8,7 @@ no longer updating this.
   
 </details>
 
-i saw your doc update on hiding my Oomfs + my moriail, YOU STILL BLASTING THEIR USERNAMES.. i'm crashing out on this, I'm drawing all of your friends and YOUR partner as WsW character. GEUNINALY I WISH YOU YOU NEVER HAVE INTERENT ACCESS YOU MISTAKE TWERP I HOPE EVERYTHING BAD HAPPENS IN YOUR LIFE I SWEAR TO PHUCKING GOD ON MY SOUL, I HOPE YOU GO TO JAIL FOR CYBERSTALKING A KID, A KID./hvyneg
+i saw your doc update on hiding my Oomfs + my moriail, YOU STILL BLASTING THEIR USERNAMES.. i'm crashing out on this, I'm drawing all of your friends and YOUR partner as WsW character. GEUNINALY I WISH YOU YOU NEVER HAVE INTERENT ACCESS YOU MISTAKE TWERP I HOPE EVERYTHING BAD HAPPENS IN YOUR LIFE I SWEAR TO PHUCKING GOD ON MY SOUL, I HOPE YOU GO TO JAIL FOR CYBERSTALKING A KID, A KID.  YOU PHUCKING CREEP, CREEP NEEDS TO BE THROWN IN JAIL/hvyneg
 
 here's my OOMF's reponse, now i want to END this here, you either accept our fate and DROP the misinfo of WsW based on "pysche ward". Because you and your LITTLE puppet friends LOVES spreading misinfo, you either follow those words above me OR i'm drawing you as WHIMSICAL WARD character BASED on you and your friends, also your partner. choose. Drop the misinfo of whimsical Ward and leave me be to support MY oomf. OR this. pick buddy.
 
