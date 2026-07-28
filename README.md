@@ -11,3 +11,5 @@ i can stll see you broski. Also "you sound like a disney villian" mecore. Thanks
 
 i like you how you took my old user but,, PLOT TWISSTEDD i still have it. LMAO Smart Thinking!/ref
 <img width="184" height="48" alt="image" src="https://github.com/user-attachments/assets/0704cf01-d9da-4d76-b882-df4d40fbc6c1" />
+<img width="311" height="563" alt="image" src="https://github.com/user-attachments/assets/cf30bee7-f5d2-487a-aa26-ed73f8d86ec3" />
+also this guy isnt me,, so i'ma give broski a follow LOL
