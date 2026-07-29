@@ -12,3 +12,4 @@ Since you guys love making my oomfs stressed, i gave you little present(i'm tire
 you guys are my first whimsical ward fans to be  drawn, i'm happy broski
 
 <img src="https://i.postimg.cc/qM8m5dXH/Untitled3822-20260728211112.png">
+i'll keep drawing you guys as my comic UNTIL you stop mentioning abt my oomf and my comic being "pysche ward". Atp. you're bad therapist.
