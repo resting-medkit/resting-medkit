@@ -17,7 +17,9 @@ i'll keep drawing you guys as my comic UNTIL you stop mentioning abt my oomf and
 <br>
 
 "i do not condone harassment" look at you, i TOLD you 2-4 times to censor MY OOMFS socials cuz i do NOT want them getting doxxed, hurt, and killed BY ME. A stubbon grown adult and his puppets who REFUSE to listen, yet when I threatend YOU and your OOMFS you decided to be crybaby about like its nothing. posion, i THINK you need more help than me atp. taps foot on the floor... I aint your parent in this situation I AIN'T HAVING IT. it is so sad that you guys getting to comfortable cyberbullying in the goddamn interent, when SOMEONE actually does cyberbullies you(ex. death threats) you guys all the sudden be upset like its nothing. Me and OOMf has SUFFERED TRAUMA with harassment, bullying, and etc IRL + online when we was YOUNG. You think its fun ponytown players??? huh? HUH?? i'm finally CALLING OUT MOST OF YOU, this is insane 10 YEARS OF HARASSMEMT, 10 YEARS OF BULLYING, 10 YEARS OF ENCOURING PEOPLE TO "DIE", and last but not least..... **10 PHUCKING YEARS OF NOTHING BUT CRINGE-CULTURE BEING HERE.** in. this. goddamn. pony. GAME.
+
 <br><br>
+
 i do not care, i had enough, ENOUGH WITH THIS GOSSIP OF HARASSMENT.  I'M CRASHIMNG OUT HOW HARD FOR YALL IS NOT RESPECT A PERSON AND NOT HARASSMENT THEM, YOU GUYS ARE HARASING A PERSON BEHIND A SCREEN NOT THE PONY ITSELF, not to mention... ME and OOMF WAS BUILLED ONLINE + IRL BEING BUILLIED IS NEVER THAT FUNNY, imagine being in my shoes have to DEAL with irl stuff as a person WHO HAS HORRIBLE TRUAMA WITH SIMILAR SITUATIONS LIKE THIS. This is coming from a person aka me WHO ALMOST TRIES TO KILL ONE OF MY TEACHER and FEW STUDENTS JUST BECUASE OF MY MENTAL BEING.   ITS NOT FUN, POSION IS NOT YOUR FRIEND, HE'S A PROP TO YOUR ASSET.  
 
 <br> 
