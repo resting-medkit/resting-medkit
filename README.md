@@ -12,4 +12,4 @@ Since you guys love making my oomfs stressed, i gave you little present(i'm tire
 you guys are my first whimsical ward fans to be  drawn, i'm happy broski
 
 <img src="https://i.postimg.cc/qM8m5dXH/Untitled3822-20260728211112.png">
-i'll keep drawing you guys as my comic UNTIL you stop mentioning abt my oomf and my comic being "pysche ward". Atp. you're bad therapist.
+i'll keep drawing you guys as my comic UNTIL you stop mentioning abt my oomf and my comic being "pysche ward". Atp. you're bad therapist. Why don't you ACTUALLY DROP that the gosh darn comic is NOT pysche ward??? did the comic hurted you're love ones or smth??? Whats the reason???? you might aswell drop the "pysche ward" excuse,, why don't you read comic AKAK awful hospital and Sparklecare(only for researches purpoues,, i do **NOT** support kneeby at all. Just like i stated in that one art i made with wsw characters. Also posion, do you want me die? you want me to cut myself? SOMETHING i finally copied is making my OWN comic based on my experincess w/ my past life. Are you happy?? if so, i'm keeping the desgins.
