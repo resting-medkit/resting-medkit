@@ -23,4 +23,4 @@ i do not care, i had enough, ENOUGH WITH THIS GOSSIP OF HARASSMENT.  I'M CRASHIM
 
 <br> 
 
-if you gonna let posion water down your truama experience wuth ponytown and etc, consider yourself a "posion kisser". That being said, i'm calling this out too. Just like you **posion.** i'm also tried of your crap aswell. Real people has been hurt and HURT. behind the ponytown's sense. I'm gen tried of you guys TAKE posion's side just because he BLASTED my oomf's github W/O CESNORING and the only way i had to make it censor is to THREATEN HIM. You are doing more harm than good. 
+if you gonna let posion water down your truama experience wuth ponytown and etc, consider yourself a "posion kisser". That being said, i'm calling this out too. Just like you **posion.** i'm also tried of your crap aswell. Real people has been hurt and HURT. behind the ponytown's scenes. I'm gen tried of you guys TAKE posion's side just because he BLASTED my oomf's github W/O CESNORING and the only way i had to make it censor is to THREATEN HIM. You are doing more harm than good. 
