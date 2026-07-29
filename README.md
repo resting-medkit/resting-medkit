@@ -9,5 +9,6 @@ no longer updating this.
 </details>
 
 Since you guys love making my oomfs stressed, i gave you little present(i'm tired to do the rest so be lucky, for now. I'll do the rest trrw.)
+you guys are my first whimsical ward fans to be  drawn, i'm happy broski
 
 <img src="https://i.postimg.cc/qM8m5dXH/Untitled3822-20260728211112.png">
